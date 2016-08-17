@@ -1,0 +1,1 @@
+#Finding your way in and out of certain things is inherently difficult.
